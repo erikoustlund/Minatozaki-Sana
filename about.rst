@@ -22,9 +22,9 @@ Years active : 2015-present
 
 Labels : JYP 
 
-		Warner Japan
+		 Warner Japan
 
-		Republic
+		 Republic
 
 Associated acts : Twice , JYP Nation
 
